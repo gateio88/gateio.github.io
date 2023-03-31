@@ -1,1 +1,1 @@
-# gateio88.github.io
+# gateio.github.io
